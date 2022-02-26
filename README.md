@@ -1,3 +1,4 @@
 # project-newbie
-Getting started 
+Getting started, 
 Initiated familiarisation established
+impulse activated 
